@@ -1,4 +1,4 @@
-<!-- INFO -->
+![logo](https://github.com/NILAM-RAI/NILAM-RAI/blob/main/INFO/66d6aaddce1ec9.39165150Processed.jpeg)
 
 
 https://github.com/user-attachments/assets/4383a749-e2bd-437e-a41b-1a7f8362e445
